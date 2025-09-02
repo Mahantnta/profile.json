@@ -4,4 +4,4 @@
 
 # Discord Id 💙
 
-`( a80q )`
+`a80q`
